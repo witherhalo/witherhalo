@@ -1,6 +1,6 @@
 # ୧ ‧₊˚ 🥩🦴 ⋅
 > hi, im witherhalo, uhh most people call me wither, some call me halo and a small amount of people call me skye.
- i use mainly use he/him/bone/bones but asking is appreciated.
+ i mainly use he/him/bone/bones but asking is appreciated.
  omnisexual and genderfluid and a bunch of other stuffs.
  i really like Wither Skeleton if you couldn't tell (especially Wither from Monster School)
 -
