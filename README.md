@@ -4,7 +4,7 @@ i mainly use he/him/bone/bones but asking is appreciated<br />
 omnisexual and genderfluid and a bunch of other stuffs<br />
 i really like Wither Skeleton if you couldn't tell (especially Wither from Monster School)
 -
-> i am a minor.
+> i am a minor<br />
 #1 Cave_ fan and Spectre duo CEO<br />
 i have adhd and anger issues, although unlikely, i still block freely<br />
 LITERALLY wither btw ❤️(and #1 wither x skeleton glazer)<br />
