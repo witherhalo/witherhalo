@@ -7,7 +7,7 @@
 > i am a minor.
  #1 Cave_ fan and Spectre duo CEO.
  i have adhd and anger issues, although unlikely, i still block freely.
- litearlly wither btw ❤️
+ literally wither btw ❤️
 -
 > i love skeletons,,,,,,,,, omgofmos,,, skekl,,,,,,,,,ton,,,,,,,,,,,,
  i play minecraft, roblox, ponytown, and a few single player horror games like fnaf and batim
