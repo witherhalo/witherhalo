@@ -2,11 +2,12 @@
 > hi, im witherhalo, uhh most people call me wither, some call me halo and a small amount of people call me skye.
 i use mainly use he/him/bone/bones but asking is appreciated.
 omnisexual and genderfluid and a bunch of other stuffs.
-i really like wither skeleton if you couldn't tell (especially Wither from Monster School)
+i really like Wither Skeleton if you couldn't tell (especially Wither from Monster School)
 -
-> i am a minor, please dont be weird unless we're close.
+> i am a minor.
 #1 Cave_ fan and Spectre duo CEO.
-i have adhd and anger issues, although unlikely, i still block freely
+i have adhd and anger issues, although unlikely, i still block freely.
+litearlly wither btw ❤️
 -
 > i love skeletons,,,,,,,,, omgofmos,,, skekl,,,,,,,,,ton,,,,,,,,,,,,
 i play minecraft, roblox, ponytown, and a few single player horror games like fnaf and batim
