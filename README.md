@@ -10,7 +10,7 @@ i have adhd and anger issues, although unlikely, i still block freely<br />
 LITERALLY wither btw ❤️(and #1 wither x skeleton glazer)<br />
 -
 > i love skeletons,,,,,,,,, omgofmos,,, skekl,,,,,,,,,ton,,,,,,,,,,,,<br />
-i play minecraft, roblox, ponytown, and a few single player horror games like fnaf and batim<br />
+c+h is always welcome/encouraged UNLESS stated (DNI,DNIUF,DNIUC, ETC.)<br />
 i love matching ponies (esp of my fav duos/ships) so dont be afraid to ask to match ponies <3<br />
 -
 > i use the same username on every platform so it wont be too hard to find me<br />
