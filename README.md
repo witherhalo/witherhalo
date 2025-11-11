@@ -7,7 +7,7 @@ i really like Wither Skeleton if you couldn't tell (especially Wither from Monst
 > i am a minor<br />
 #1 Cave_ fan and Spectre duo CEO<br />
 i have adhd and anger issues, although unlikely, i still block freely<br />
-LITERALLY wither btw ❤️(and #1 wither x skeleton glazer)<br />
+LITERALLY wither btw ❤️(and wither x skeleton enthusiast)<br />
 -
 > i love skeletons,,,,,,,,, omgofmos,,, skekl,,,,,,,,,ton,,,,,,,,,,,,<br />
 very big mcyt/ms enthusiast<br />
