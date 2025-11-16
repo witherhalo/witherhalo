@@ -13,7 +13,7 @@ LITERALLY wither btw ❤️(and wither x skeleton enthusiast)<br />
 > i love skeletons,,,,,,,,, omgofmos,,, skekl,,,,,,,,,ton,,,,,,,,,,,,<br />
 very big mcyt/ms enthusiast<br />
 don't  be scared to int or c+h, i dont bite<br />
-c+h encouraged unless stated otherwise<br />
+c+h encouraged, cud/touch comf<br />
 i love matching ponies (esp of my fav duos/ships) so dont be afraid to ask to match ponies <3<br />
 -
 > i use the same username on every platform so it wont be too hard to find me<br />
