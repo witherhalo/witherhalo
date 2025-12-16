@@ -4,7 +4,6 @@ this account is used for pt!!<br />
 i mainly use he/him (+ bone/bones and fox/foxes/fox's) but asking is appreciated<br />
 omnisexual and genderfluid and a bunch of other stuffs<br />
 i really like Wither Skeleton if you couldn't tell (especially Wither from Monster School)<br />
-@CaveUnderscore - my alt/backup acc
 -
 > i am a minor<br />
 #1 Cave_ fan and Spectre duo CEO<br />
