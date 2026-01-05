@@ -10,6 +10,7 @@ i really like Wither Skeleton if you couldn't tell (especially Wither from Monst
 i have adhd and anger issues, although unlikely, i still block freely<br />
 LITERALLY wither btw ❤️(and wither x skeleton enthusiast)<br />
 dni if you claim to be cave_ and wither number 1 fan,, ok? ok,,,,,<br />
+PLEASEEEEEEEE read my pronouns/strawpage BEFORE INTERACTING<br />
 -
 > i love skeletons,,,,,,,,, omgofmos,,, skekl,,,,,,,,,ton,,,,,,,,,,,,<br />
 very big mcyt/ms enthusiast<br />
