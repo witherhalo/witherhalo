@@ -23,4 +23,3 @@ i love matching ponies (esp of my fav duos/ships) so dont be afraid to ask to ma
 int all you want, as long as you're not a weirdo<br />
 ok bye thank you for readinf<br />
 
-https://spotify-github-profile.kittinanx.com
