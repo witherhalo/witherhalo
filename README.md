@@ -22,3 +22,5 @@ i love matching ponies (esp of my fav duos/ships) so dont be afraid to ask to ma
 > i use the same username on every platform so it wont be too hard to find me<br />
 int all you want, as long as you're not a weirdo<br />
 ok bye thank you for readinf<br />
+
+https://spotify-github-profile.kittinanx.com
