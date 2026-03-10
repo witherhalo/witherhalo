@@ -4,6 +4,7 @@ this account is used for pt!!<br />
 i mainly use he/him (+ bone/bones and fox/foxes/fox's) but asking is appreciated<br />
 omnisexual and genderfluid and a bunch of other stuffs<br />
 i really like Wither Skeleton if you couldn't tell (especially Wither from Monster School)<br />
+i have art comms open! dm on discord if interested 👀 (witherhalo on dc)<br />
 -
 > i am a minor<br />
 LAWRIE NON-SHARING YUME (doubles dni)<br />
