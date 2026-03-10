@@ -6,6 +6,7 @@ omnisexual and genderfluid and a bunch of other stuffs<br />
 i really like Wither Skeleton if you couldn't tell (especially Wither from Monster School)<br />
 -
 > i am a minor<br />
+LAWRIE NON-SHARING YUME (doubles dni)<br />
 #1 Cave_ fan and Spectre duo CEO<br />
 (when i say spectre duo CEO i mean i made their duo name, ok..? ok...)<br />
 i have adhd and anger issues, although unlikely, i still block freely<br />
