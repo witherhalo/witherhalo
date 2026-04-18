@@ -17,7 +17,7 @@ PLEASEEEEEEEE read my pronouns/strawpage BEFORE INTERACTING<br />
 
 
 <details>
-    <summary>about me! </summary>
+   > <summary>about me! </summary>
   i love skeletons,,,,,,,,, omgofmos,,, skekl,,,,,,,,,ton,,,,,,,,,,,,<br />
 very big mcyt/ms enthusiast<br />
 don't  be scared to int or c+h, i dont bite<br />
@@ -26,12 +26,12 @@ i love matching ponies (esp of my fav duos/ships) so dont be afraid to ask to ma
 </details>
 
 <details>
-    <summary>current main interests</summary>
+   > <summary>current main interests</summary>
     Monster School (heavy on this one) , Monster High , MCYT
 </details>
   
 <details>
-    <summary>dni/social medias</summary>
+   > <summary>dni/social medias</summary>
 i use the same username on every platform so it wont be too hard to find me<br />
 int all you want, as long as you're not a weirdo<br />
 </details>
