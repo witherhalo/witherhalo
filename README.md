@@ -1,5 +1,5 @@
 # ୧ ‧₊˚ 🥩🦴 ⋅
-this account is used for pt!!<br />
+this account is used for pt!! (read before interacting) <br />
 > hi, im witherhalo, uhh most people call me wither, some call me halo and a small amount of people call me skye<br />
 i mainly use he/him (+ bone/bones and fox/foxes/fox's) but asking is appreciated<br />
 omnisexual and genderfluid and a bunch of other stuffs<br />
@@ -16,6 +16,8 @@ dni if you claim to be cave_ and wither number 1 fan,, ok? ok,,,,,<br />
 PLEASEEEEEEEE read my pronouns/strawpage BEFORE INTERACTING<br />
 -
 > i love skeletons,,,,,,,,, omgofmos,,, skekl,,,,,,,,,ton,,,,,,,,,,,,<br />
+current main interests:<br />
+<b>MCYT , Monster School , Monster High<b/><br />
 very big mcyt/ms enthusiast<br />
 don't  be scared to int or c+h, i dont bite<br />
 c+h encouraged, cud/touch comf<br />
