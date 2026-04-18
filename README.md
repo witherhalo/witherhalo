@@ -17,7 +17,7 @@ PLEASEEEEEEEE read my pronouns/strawpage BEFORE INTERACTING<br />
 -
 > i love skeletons,,,,,,,,, omgofmos,,, skekl,,,,,,,,,ton,,,,,,,,,,,,<br />
 current main interests:<br />
-<b>MCYT , Monster School , Monster High<b/><br />
+<b>MCYT , Monster School , Monster High<b/> <br />
 very big mcyt/ms enthusiast<br />
 don't  be scared to int or c+h, i dont bite<br />
 c+h encouraged, cud/touch comf<br />
