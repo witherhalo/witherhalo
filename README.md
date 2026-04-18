@@ -27,7 +27,7 @@ i love matching ponies (esp of my fav duos/ships) so dont be afraid to ask to ma
 
 <details>
    > <summary>current main interests</summary>
-    Monster School (heavy on this one) , Monster High , MCYT
+    Monster School (heavy on this one) , Monster High (especially DracuClawd) , MCYT
 </details>
   
 <details>
