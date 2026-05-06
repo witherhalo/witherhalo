@@ -1,7 +1,7 @@
 # ୧ ‧₊˚ 🥩🦴 ⋅
 this account is used for pt!! (read before interacting) <br />
 > hi, im witherhalo, uhh most people call me wither, some call me halo and a small amount of people call me skye<br />
-i mainly use he/him (+ bone/bones and fox/foxes/fox's) but asking is appreciated<br />
+i mainly use he/him (+ bone/bones and wolf/wolves/wolf's) but asking is appreciated<br />
 omnisexual and genderfluid and a bunch of other stuffs<br />
 i really like Wither Skeleton if you couldn't tell (especially Wither from Monster School)<br />
 i have art comms open! dm on discord if interested 👀 (witherhalo on dc)<br />
