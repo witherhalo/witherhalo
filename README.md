@@ -13,7 +13,7 @@ LAWRIE NON-SHARING YUME (doubles dni)<br />
 i have adhd and anger issues, although unlikely, i still block freely<br />
 LITERALLY wither btw ❤️(and wither x skeleton enthusiast)<br />
 dni if you claim to be cave_ and wither number 1 fan,, ok? ok,,,,,<br />
-PLEASEEEEEEEE read my pronouns/strawpage BEFORE INTERACTING<br />
+mostly just read my pronouns page/rentry/strawpage before interacting for info<br />
 
 
 <details>
