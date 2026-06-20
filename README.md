@@ -1,19 +1,20 @@
 # ୧ ‧₊˚ 🥩🦴 ⋅
 this account is used for pt!! (read before interacting) <br />
-- hi, im witherhalo, uhh most people call me wither, some call me halo and a small amount of people call me skye<br />
-- i mainly use he/him (+ bone/bones and wolf/wolves/wolf's) but asking is appreciated<br />
-- omnisexual and genderfluid and a bunch of other stuffs<br />
-- i really like Wither Skeleton if you couldn't tell (especially Wither from Monster School)<br />
-- i have art comms open! dm on discord if interested 👀 (witherhalo on dc)<br />
-- i am a minor<br />
-- LAWRIE NON-SHARING YUME (doubles dni)<br />
-- NO I DO NOTT SHIP LLCEST<br />
-- #1 Cave_ fan and Spectre duo CEO<br />
+> hi, im witherhalo, uhh most people call me wither, some call me halo and a small amount of people call me skye<br />
+ i mainly use he/him (+ bone/bones and wolf/wolves/wolf's) but asking is appreciated<br />
+ omnisexual and genderfluid and a bunch of other stuffs<br />
+ i really like Wither Skeleton if you couldn't tell (especially Wither from Monster School)<br />
+ i have art comms open! dm on discord if interested 👀 (witherhalo on dc)<br />
+
+> i am a minor<br />
+ LAWRIE NON-SHARING YUME (doubles dni)<br />
+ NO I DO NOTT SHIP LLCEST<br />
+ #1 Cave_ fan and Spectre duo CEO<br />
 (when i say spectre duo CEO i mean i made their duo name, ok..? ok...)<br />
-- i have adhd and anger issues, although unlikely, i still block freely<br />
-- LITERALLY wither btw ❤️(and wither x skeleton enthusiast)<br />
-- dni if you claim to be cave_ and wither number 1 fan,, ok? ok,,,,,<br />
-- mostly just read my pronouns page/rentry/strawpage before interacting for info<br />
+i have adhd and anger issues, although unlikely, i still block freely<br />
+ LITERALLY wither btw ❤️(and wither x skeleton enthusiast)<br />
+ dni if you claim to be cave_ and wither number 1 fan,, ok? ok,,,,,<br />
+ mostly just read my pronouns page/rentry/strawpage before interacting for info<br />
 
 
 <details>
