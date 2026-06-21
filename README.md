@@ -11,6 +11,8 @@ this account is used for pt!! (read before interacting) <br />
  NO I DO NOTT SHIP LLCEST<br />
  #1 Cave_ fan and Spectre duo CEO<br />
 (when i say spectre duo CEO i mean i made their duo name, ok..? ok...)<br />
+
+i dont mine roleplaying, just give me a heads up beforehand (and please know i am very awkward,,)<br />
 i have adhd and anger issues, although unlikely, i still block freely<br />
  LITERALLY wither btw ❤️(and wither x skeleton enthusiast)<br />
  dni if you claim to be cave_ and wither number 1 fan,, ok? ok,,,,,<br />
