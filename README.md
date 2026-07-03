@@ -2,7 +2,7 @@
 this account is used for pt!! (read before interacting) <br />
 (might remake this page its messy ashell AHHH)<br/>
 > hi, im witherhalo, uhh most people call me wither, some call me halo and a small amount of people call me skye<br />
- i mainly use he/him (+ wolf/wolves/wolf's) but asking is appreciated<br />
+ i mainly use he/him (+ bone/bones & wolf/wolves/wolf's) but asking is appreciated<br />
  gay and genderfluid and a bunch of other stuffs<br />
  i really like Wither Skeleton if you couldn't tell (especially Wither from Monster School)<br />
  IM NOT GOOD AT SOCIALIZING BAHHH so you will have to int first </3<br />
