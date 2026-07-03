@@ -9,7 +9,7 @@ this account is used for pt!! (read before interacting) <br />
 
 > i am a minor<br />
  LAWRIE NON-SHARING YUME (doubles dni)<br />
- NO I DO NOTT SHIP LLCEST<br />
+ NO I DO NOTT SHIP LLCEST DNIDNIDNIDNIDNI<br />
  #1 Cave_ fan and Spectre duo CEO<br />
 (when i say spectre duo CEO i mean i made their duo name, ok..? ok...)<br />
 
