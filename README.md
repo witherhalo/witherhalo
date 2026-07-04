@@ -16,7 +16,7 @@ this account is used for pt!! (read before interacting) <br />
 > i dont mine roleplaying, just give me a heads up beforehand (and please know i am very awkward,,)<br />
 i have adhd and anger issues, although unlikely, i still block freely<br />
  LITERALLY wither btw ❤️(and wither x skeleton enthusiast)<br />
- dni if you claim to be cave_ and wither number 1 fan,, ok? ok,,,,,<br />
+ iwec if you claim to be cave_, wither, or lawrie number 1 fan,, ok? ok,,,,,<br />
  mostly just read my pronouns page/rentry/strawpage before interacting for info<br />
 
 
