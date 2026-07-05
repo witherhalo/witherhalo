@@ -20,12 +20,12 @@
 > <p>I go by He/Any + Bone/Bone's and Wolf/Wolf's/Wolves. But asking is appreciated aswell</p>
 > <p>I am a fictkin and factkin, aswell as an INFP</p>
 > <p>I am a NON-SHARING Lawrie yumeshipper. Please kindly DNI if you're a double.</p>
-> <p>I am multifandom, but my current main interests are Brawl Stars, Monster School, and MCYT.</p>
-> <p>I have (Undiagnosed) ADHD and Anger Issues. Although unlikely, I still block freely.</p>
+> <p>I am multifandom, but my current main interests are Brawl Stars, Monster School, and MCYT</p>
+> <p>I have (Undiagnosed) ADHD and Anger Issues. Although unlikely, I still block freely</p>
 > <p>#1 Cave_, Wither Skeleton, and Lawrie fan/glazer</p>
 > <p>SPECTRE/LUSH DUO CEO AHHH (as in I made their duo name :D)
 > <p>I don't mind roleplaying at all! But please give me a heads up beforehand.</p>
-> <p>I go by witherhalo on all apps and sites.</p>
+> <p>I go by witherhalo on all apps and sites!!!</p>
 
 <div align= center>
   
@@ -65,9 +65,9 @@
  <summary>DNI</summary>
   
  [Basic DNI Criteria.](https://basic-dni.crd.co/) </p>
- <p>LLcest shippers or tolerators.</p>
- <p>Vivziepop supporters.</p>
- <p>Toxic yumeshippers/fictkins.</p>
+ <p>LLcest shippers or tolerators</p>
+ <p>Vivziepop supporters</p>
+ <p>Toxic yumeshippers/fictkins</p>
  <p>I'm not all too strict, I block/ignore freely.</p>
  <img width="279" height="254" alt="image" src="https://github.com/user-attachments/assets/3d021bd1-1951-41ca-92c0-c4670b42f641" />
  </details>
