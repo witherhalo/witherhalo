@@ -29,7 +29,7 @@
 
 <div align= center>
   
-# ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+# ˙∘˚۶🦴ও꒷꒦
 
 <details>
  <summary>PONY TOWN</summary>
