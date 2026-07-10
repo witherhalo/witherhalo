@@ -47,7 +47,7 @@
  <summary>BYI/BYF</summary>
  <p>I occasionally make kys/kms jokes with people I'm comfortable with, please lmk if you're uncomfy with that so I don't use them around you!</p>
  <p>I'm a pretty understanding person so please let me know if im bothering you or making you uncomfortable in any way</p>
- <p>I lack sympathy, please try not to vent/rant to me as I am not good with this stuff</p>
+ <p>I lack sympathy, please try not to vent/rant to me as I am not good with this stuff (unless friends, ill try my best </3)</p>
   <p>I am not comfortable with insults, even if as a joke, unless you're my friend</p>
   <p>Me typing in lowercase is mostly a typing quirk, not me trying to be dry or rude towards you</p>
   <p>I may come off as awkward towards people I just met, but I promise I am very nice once you get to know me <3</p>
