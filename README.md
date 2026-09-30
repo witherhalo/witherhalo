@@ -17,7 +17,7 @@
   
 > <p>I'm witherhalo, mainly known as wither! I don't mind if you call me Halo, Skye, or the name of the pony I am currently using. Nicknames are welcome aswell!</p>
 > <p>I am a minor, +18 IWC unless close friend</p>
-> <p>Almondsexual, Genderfluid, and Aromantic + Nebularomantic, Cupioromantic, and Panplatonic</p>
+> <p>Almondsexual & Genderfluid (Check pronouns page for other labels.)</p>
 > <p>I go by He/Any + Bone/Bone's and Wolf/Wolf's/Wolves. But asking is appreciated aswell!!</p>
 > <p>I am a fictkin and factkin, aswell as an INFP</p>
 > <p>I am a VOIDSHARING Lawrie Gachikoi. Please kindly DNI if you're a double.</p>
