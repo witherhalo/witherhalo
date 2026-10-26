@@ -66,6 +66,7 @@
  <summary>DNI</summary>
   
  [Basic DNI Criteria.](https://basic-dni.crd.co/) </p>
+ <p>Pro/Darkshippers and its tolerators.</p>
  <p>LLcest shippers or tolerators</p>
  <p>Vivziepop supporters</p>
  <p>Toxic yumeshippers/fictkins</p>
