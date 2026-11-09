@@ -29,7 +29,9 @@
 > <p>I go by witherhalo on all apps and sites!!!</p>
 
 me and [bro](https://github.com/MASTEROFMETAL) trust/platonic
-<img width="700" height="363" alt="Manchester1" src="https://github.com/user-attachments/assets/a1b9ee44-78e1-4776-80b4-28629d2daee5" />
+<img width="374" height="211" alt="deadpool-spiderman" src="https://github.com/user-attachments/assets/bdc40e20-7b8c-4449-a81d-9f1db81f758b" />
+
+
 
 
 <div align= center>
