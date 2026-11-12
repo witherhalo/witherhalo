@@ -7,7 +7,7 @@
 <small>*This page is used for my general ponies!*</small></br>
 <small>*Sign atabook+strawpage!*</small></br>
 <small>*this is all copypasted from my lawrie page cus im a lazy bum*</small></br>
-[@1retsxnarp](https://github.com/1retsxnarp) HI TWIN ILY (we are the [duo](https://github.com/pt-friendships) for real)
+[@1retsxnarp](https://github.com/1retsxnarp) HI ACE ILYY (we are the [duo](https://github.com/pt-friendships) for real)
 
 <div align= center>
   
