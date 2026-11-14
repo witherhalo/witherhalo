@@ -26,6 +26,7 @@
 > <p>#1 Cave_, Wither Skeleton, and Lawrie fan/glazer</p>
 > <p>SPECTRE/LUSH/COWBOY DUO CEO AHHH (as in I made their duo name :D)
 > <p>I don't mind roleplaying at all! But please give me a heads up beforehand.</p>
+> <p>Gift me Lawrie/Skye ponies and I'll kiss you on the lips(/nsrs)</p>
 > <p>I go by witherhalo on all apps and sites!!!</p>
 
 me and [bro](https://github.com/MASTEROFMETAL) trust/platonic
